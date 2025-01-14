@@ -8,7 +8,10 @@ Notes are attached above "keep learning, keep growing" :)
 
 You can also connect me here 👇
 
-Linkedin : https://www.linkedin.com/in/chandrika-bijore-772ab1227/  
-Telegram : https://telegram.me/Chandrika_bijore_3072
-Instagram : https://www.instagram.com/chandrika_bijore_3072/ 
-Twitter : https://x.com/1Bijore59734
+**Linkedin :** https://www.linkedin.com/in/chandrika-bijore-772ab1227/
+
+**Telegram :** https://telegram.me/Chandrika_bijore_3072
+
+**Instagram :** https://www.instagram.com/chandrika_bijore_3072/ 
+
+**Twitter :** https://x.com/1Bijore59734
