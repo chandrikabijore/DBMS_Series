@@ -1,6 +1,6 @@
 # DBMS_Series
 
-Hi all, In this repo you can find all the notes of the on-going DBMS Series on my
+Hi all, In this repo you can find all the notes of the on-going DBMS Series.
 
 Playlist link (DBMS Series) : https://www.youtube.com/playlist?list=PLrL_PSQ6q062cD0vPMGYW_AIpNg6T0_Fq
 
